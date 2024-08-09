@@ -1,16 +1,17 @@
 ## Hi there 👋
 
-<!--
+
 **Lucaze71/Lucaze71** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+ALUNO DO LETICIA QUE VEIO DO GOIAS
+- ☕ Trabalho em um café
+- 🤳 Faço cursos de Videomaker
+- 💲 Estou começando investir em renda fixa
+- 🏋️‍♀️ Vou na academia todos os dias
+- ✂ Gosto de cortar o cabelo toda semana
+- ✌ Sou ativo em redes sociais
+- ⚡ Sou imperativo e tímido
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- @LUCALZK IG
+
+![](https://media1.tenor.com/m/Pny2LnvNcukAAAAC/vonada-vounada.gif)
