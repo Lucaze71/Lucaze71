@@ -10,7 +10,7 @@ ALUNO DO LETICIA QUE VEIO DO GOIAS
 - 🏋️‍♀️ Vou na academia todos os dias
 - ✂ Gosto de cortar o cabelo toda semana
 - ✌ Sou ativo em redes sociais
-- ⚡ Sou imperativo e tímido
+- ⚡ Sou imperativo, tímido e safado
 
 - @LUCALZK IG
 
